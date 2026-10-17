@@ -10,3 +10,6 @@ Kesan dan pesan saya tentang INTRIVIA 2026 adalah abcdefg
 
 ## Kesan Pesan Cluster 3 Sejauh Ini 
 Kesan dan pesan saya tentang cluster saya adalah asdfghj
+
+## Harapan Kuliah 
+Harapan saya adalah zxcvbnm<>
